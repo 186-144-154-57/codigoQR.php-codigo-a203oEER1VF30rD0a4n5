@@ -1,0 +1,1 @@
+# codigoQR.php-codigo-a203oEER1VF30rD0a4n5
